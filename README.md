@@ -1,1 +1,0 @@
-# singularityu820.github.io
